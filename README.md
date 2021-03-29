@@ -1,7 +1,8 @@
 ### Hi there 👋
 ✨ [My Birthday](https://cdplayy.rf.gd/) ✨
+[Contact Me](https://rayyplay.rf.gd) | [Show Your Setup!](https://sys.rf.gd)
 
-![achievement](https://minecraftskinstealer.com/achievement/6/Achievement%20Get!/Visit%20rayyplay%20Github!)
+![achievement](https://minecraftskinstealer.com/achievement/6/Achievement%20Get!/Visit%20rayyplay%20GitHub!)
 
 <!--
 **rayyplay/rayyplay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
