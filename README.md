@@ -1,6 +1,6 @@
 ### Hi there 👋
 ✨ [My Discord Server](https://discord.gg/KY6Dqsw) ✨                                                                                         
-[Contact Me](https://rayyplay.rf.gd) | [Show Your Setup!](https://sys.rf.gd)
+[Contact Me](https://bio.link/zerodesain) | [Show Your Setup!](https://sys.rf.gd)
 
 ![achievement](https://minecraftskinstealer.com/achievement/8/Achievement%20Get!/Visit%20rayyplay%20GitHub!)
 
